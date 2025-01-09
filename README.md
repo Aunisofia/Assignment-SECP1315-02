@@ -2,7 +2,7 @@
 
 GROUP 1 - Bistro 2 Square Bytes(B4B)
 
-Assignments 1 (Poster) : <br> [Purple and Green Wealth Milestones Infographic Poster.pdf](https://github.com/user-attachments/files/18358474/Purple.and.Green.Wealth.Milestones.Infographic.Poster.pdf)
+Assignments 1 (Poster) : <br> [POSTER TALK COLCOM DIGI X RUNCLOUND.pdf](https://github.com/user-attachments/files/18358594/POSTER.TALK.COLCOM.DIGI.X.RUNCLOUND.pdf)
 
 Assignment 2 (Video) : <br> https://youtu.be/mTVhgWnKk2c?si=UproFas0Be-yLSw2
 
